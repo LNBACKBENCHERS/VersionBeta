@@ -1,2 +1,1 @@
-gthyujkilo;p'
-4loikujyhtgrf
+tum cutiye ho
